@@ -1,3 +1,2 @@
 # GitupGitoutandGitsomething
-## Just
-# Do it
+## How can you make it if you never even try
